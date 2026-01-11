@@ -1,2 +1,2 @@
 # CommercialDeals.com
-Business leads, starting in commercial real estate finance. 
+Vision: CommercialDeals® Global Business Leads & Services for every B2B vertical
