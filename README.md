@@ -1,2 +1,2 @@
 # CommercialDeals.com
-Vision: CommercialDeals® transactional B2B leads & services for every vertical
+Vision: CommercialDeals® transactional B2B services for every vertical
